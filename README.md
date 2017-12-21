@@ -1,2 +1,0 @@
-# DrNajlaa.github.io
-Education
